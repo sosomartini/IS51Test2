@@ -1,1 +1,1 @@
-IS51Test2 - <Eseosa><Otasowie>
+IS51Test2 - Eseosa Otasowie
